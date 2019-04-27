@@ -1,4 +1,3 @@
-Good morning Everyone.
 
 AUS Digital Dollar Looking Partnership's , Investors and d Team members. If's anyone interested you can contact. email: ausdigitaldollr@outlook.com
 
@@ -31,5 +30,3 @@ Telegram Community Group:
 https://lnkd.in/fU865Uv  
 Instagram: 
 https://lnkd.in/fEV-wSi
-
-Have a good Sunday 🍻🍺🥂🍷
